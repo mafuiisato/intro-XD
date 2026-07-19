@@ -3,7 +3,7 @@
 
 kim / inu / rei
 
-strvybkim / jiraiki / kimxzaii (yes I have 3 users)
+strvbykim / jiraiki / kimsnagii (yes I have 3 users)
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵
 
@@ -44,5 +44,7 @@ meowist / meowism.
 
 
 i tend to space out alot or not reply to messages like in 1-5mins, so please be patient with me.
+
+my texting style might be annoying for some, I also sometimes curse, so if ur uncomfortable, u can gladly dni!
 
 
