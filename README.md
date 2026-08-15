@@ -57,4 +57,10 @@ i tend to space out alot or not reply to messages like in 1-5mins, so please be 
 
 my texting style might be annoying for some, I also sometimes curse, so if ur uncomfortable, u can gladly dni!
 
+just because I ship my yumes with others doesn't mean i don't like them ok... 👀
+
+i'm diagnosed with autism (leaning towards abnormal flat speech & noise sensitivity) and suspected schizophrenia.
+
+JUST because I like yaoi n stuff DOES NOT mean i Support jinx or whatever..
+<img width="512" height="512" alt="1000171535" src="https://github.com/user-attachments/assets/eacc219e-7b43-40ad-80b9-48f70e6a0d94" />
 
