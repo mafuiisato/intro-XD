@@ -18,7 +18,7 @@ bigender , androsexual biromantic (yes i DO have a crush on someone. if u def co
 
 i have social anxiety and insomnia. Yes I will 99% NOT interact with you but probably secretly admire you from afar (yes i like ur pony skins)
 
-i do use fictionkin terms and have a repository regarding to many of them. I am soulbound/ed to Nagito. I prefer doubles not to interact (expect for SOME of my f/o's / yumeships) 
+i do use fictionkin terms and have a repository regarding to many of them. I am soulbound/ed to Isagi. I prefer doubles not to interact (expect for SOME of my f/o's / yumeships) 
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵
 
