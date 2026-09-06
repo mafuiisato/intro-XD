@@ -1,7 +1,7 @@
 (๑ᵔ⤙ᵔ๑)
 
 
-kim / inu / rei
+kim / inu / jira
 
 strvbykim / jiraiki / kimsnagii (yes I have 3 users)
 
@@ -40,6 +40,8 @@ someone who crosses the line at boundaries.
 meowist / meowism. 
 
 darkshippers / proshippers
+
+tqq fans - omg so many of these have fans have harassed me, plus i think this anime is pure misogyny plus most of them are teen boys
 
 
 thin ice:
